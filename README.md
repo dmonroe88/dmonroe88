@@ -1,4 +1,4 @@
-#- 👋 Hi, I’m @dmonroe88 
+#- 👋 Hi, I’m Dan Monroe or @dmonroe88
 - 👀 I'm interested in playing with the kiddo, fetching with the doggo, hanging out with my boo thang and occasionally playing some Pokemon go with them all.
 - 🌱 I’m currently learning SQL and other fancy fun programs for the realm of analytics.
 - 💞️ I’m looking to collaborate on pretty much anything to get more experience!
